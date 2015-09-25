@@ -2,6 +2,8 @@
 
 Name: Heather Heenehan
 
+![picture](http://sites.duke.edu/heatherheenehan/files/2014/03/PicMonkey-Collage.jpg)
+
 [Website](http://sites.duke.edu/heatherheenehan/)
 
 Depending on the dinner party I say that I am a marine scientist, a soundscape ecologist, a marine mammal biologist, a conservation biologist, depends on my mood and audience. In my research I focus on the soundscape or acoustic environment of critical areas for marine mammals. Right now I study the soundscape of Hawaiian spinner dolphin resting bays.
